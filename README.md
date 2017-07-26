@@ -1,2 +1,2 @@
 # Asteezy24.github.io
-A personal webpage.
+Website coming soon 👀
